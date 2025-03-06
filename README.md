@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **akshatpeter18@gmail.com**
 
-- ⚡ Fun fact **Manga Enthusiast.**
+- ⚡ Fun fact **Anime/Manga Enthusiast.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
