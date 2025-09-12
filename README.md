@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **about LLM's.**
 
-- 👯 I’m looking to collaborate on **NLP projects.**
+- 👯 I’m looking to collaborate on **Gen AI projects.**
 
 - 🤝 I’m looking for help with **In Gen AI.**
 
